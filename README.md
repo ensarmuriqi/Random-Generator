@@ -1,1 +1,1 @@
-https://misandei17.github.io/Random-Generator/
+https://ensarmuriqi.github.io/Random-Generator/
